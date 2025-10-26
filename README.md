@@ -1,1 +1,1 @@
-# Business-Insight-360-Dell-Technologies
+# Business-Insight-360-AtliQ-Technologies
